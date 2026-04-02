@@ -56,4 +56,4 @@ I value **clarity, reproducibility, and impact**, and I’m always exploring new
 
 ## 📫 Let’s Connect
 - [LinkedIn](#)  
-- 
+- [Portfolio](#)
